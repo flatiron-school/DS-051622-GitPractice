@@ -37,7 +37,8 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Zachary
 !['Studious 
-Dog'](https://media.giphy.com/media/3LrK7Q7UhF5MnhZ5ja/giphy.gif)
+Dog gif from 
+giphy'](https://media.giphy.com/media/3LrK7Q7UhF5MnhZ5ja/giphy.gif)
 ### John
 
 ### Tara
