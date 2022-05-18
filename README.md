@@ -18,7 +18,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ## Find Your Name Below!
 
 ### William
-
+![Giannis Antetokounmpo Championship gif from giphy](https://media.giphy.com/media/T2uMU496rQ0SaWQh63/giphy-downsized.gif)
 ### Daniel
 
 ### Margaret
