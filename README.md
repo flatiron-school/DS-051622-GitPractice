@@ -23,7 +23,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Camel Hump day gif](https://media.giphy.com/media/BVSMbtX5ZRGqwnCQnX/giphy.gif)
 
 ### Margaret
-
+![Tired Coffee Day](https://giphy.com/gifs/garfield-cat-coffee-pzryvxGeykOxeC0fWb)
 ### Tom
 
 ![Shaq makes my heart flutter.](https://www.nba.com/kings/sites/kings/files/29-shaq-bird-hands-shaq-gifs.gif)
