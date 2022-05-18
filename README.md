@@ -45,7 +45,7 @@ giphy'](https://media.giphy.com/media/3LrK7Q7UhF5MnhZ5ja/giphy.gif)
 ### John
 !['gif of how content i am with the work so far](https://c.tenor.com/aNeM2zaonAsAAAAd/im-just-happy-content.gif)
 ### Tara
-
+![Dance'n Jay and Bob...] [https://images.app.goo.gl/BbE2GMgpmG4uv4Ks8]
 ### Anton
 ![Title](https://media.giphy.com/media/8jLWtuTzN2DoQ/giphy.gif)
 ![another](https://media.giphy.com/media/3o7aTHene1fIqATgRy/giphy.gif)
