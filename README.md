@@ -25,7 +25,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Tom
 
-![Shaq shoulder shake] (https://media.giphy.com/media/UO5elnTqo4vSg/giphy.gif)
+![Shaq makes me flutter.] (https://www.nba.com/kings/sites/kings/files/29-shaq-bird-hands-shaq-gifs.gif)
 
 ### Jillian
 
