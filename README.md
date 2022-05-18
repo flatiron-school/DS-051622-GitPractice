@@ -19,68 +19,30 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### William
 
-![only Tuesday gif from Giphy](https://media.giphy.com/media/flL6zRWgnNDvSidTcX/giphy.gif)
+### Daniel
 
 ### Margaret
 
-![tired gif from tenor](https://c.tenor.com/ibAeZIaQgJoAAAAd/tom-and.gif)
-
 ### Tom
-
-![May not be going to space today](https://media.discordapp.net/attachments/820479419545419827/928406364458483752/270301130_1300967297057056_5969400458840051637_n.png)
 
 ### Jillian
 
-![2nd Day In DS Class Kid](https://media.giphy.com/media/XreQmk7ETCak0/giphy.gif)
-
 ### Mychal
-![Boo sleepy gif from icegif](https://www.icegif.com/wp-content/uploads/sleepy-icegif-2.gif)
-
-
 
 ### Alex
-![digtrio he-man](https://pbs.twimg.com/media/FI1tCqBUYAAoXna?format=jpg&name=360x360)
-
 
 ### Yukhai
 
-![Double rainbow guy](https://media.giphy.com/media/dsHn0MkyXIq8RzWiJb/giphy.gif)
-
-
 ### Ogo
 
-![Tom Nook Clapping](https://i.giphy.com/media/KFhv3T1seYSJuak8TN/giphy.webp)
-
 ### Zachary
- ![my day](https://media.giphy.com/media/1GEATImIxEXVR79Dhk/giphy.gif)   
-
 
 ### John
-![alyssa edwrds back rolls](https://media0.giphy.com/media/tG2PPAXybVbe8/giphy.gif?cid=ecf05e47ys6xokqqhva0krus479ip6zize78yluqjn1u7o32&rid=giphy.gif)
-
-
 
 ### Tara
 
-![A Frasier gif that sums up my feelings towards Giphy from Giphy](https://media.giphy.com/media/cItRuCib3Rm7Cb9C1P/giphy.gif)
-
-
 ### Anton
 
-![Giannis Antetokounmpo Championship gif from giphy](https://media.giphy.com/media/T2uMU496rQ0SaWQh63/giphy-downsized.gif)
-
 ### Yue
-![Ready for dinner gif of Pooh from Giphy](https://media.giphy.com/media/jKaFXbKyZFja0/giphy.gif)
-
 
 ### Peter
-
-![Will Smith giph](https://media.giphy.com/media/3o7WIBndbUIDDGG9Qk/giphy.gif)
-
-### Daniel 
-![Happy Wednesday Giph from Giphy](https://media.giphy.com/media/iibH5ymW6LFvSIVyUc/giphy.gif)
-
-
-### 
-![Snorlax getting pulled gif from Giphy](https://media.giphy.com/media/l3vQXn15dRVNMru7e/giphy.gif)
-
