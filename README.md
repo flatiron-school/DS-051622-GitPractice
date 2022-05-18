@@ -25,6 +25,8 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Tom
 
+![Shaq shoulder shake] (https://media.giphy.com/media/UO5elnTqo4vSg/giphy.gif)
+
 ### Jillian
 
 ### Mychal
