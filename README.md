@@ -38,7 +38,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Zachary
 
 ### John
-
+!['gif of how content i am with the work so far](https://c.tenor.com/aNeM2zaonAsAAAAd/im-just-happy-content.gif)
 ### Tara
 
 ### Anton
