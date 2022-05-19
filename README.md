@@ -58,3 +58,4 @@ giphy'](https://media.giphy.com/media/3LrK7Q7UhF5MnhZ5ja/giphy.gif)
 ### Yue
 ![I Have A Lots of Feeling from GIPHY](https://giphy.com/gifs/thebachelorette-abc-bachelorette-the-eOYAeYbnNCYlBj3YUN)
 ### Peter
+![Raccon Thief](https://tenor.com/search/raccoon-stealing-cat-food-gif)
